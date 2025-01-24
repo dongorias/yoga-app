@@ -29,9 +29,6 @@ GitHub: [@dongorias](https://github.com/dongorias)
 
 Twitter: [@dongorias](https://twitter.com/don_gorias)
 
-Facebook: [@dongorias](https://www.facebook.com/dongorias25)
-
-Instagram: [@dongorias](https://instagram.com/_dongorias)
 
 
 
